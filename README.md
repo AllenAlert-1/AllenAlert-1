@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any project
 - 📫 How to reach me Github🌚
 - 😄 Pronouns: He
-- ⚡ Fun fact: I my girlfriend and movies too
+- ⚡ Fun fact: I love my girlfriend and movies too
 
 <!---
 AllenAlert-1/AllenAlert-1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
